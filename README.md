@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @LoopingTheorem
+- 👀 I’m interested in Learning how to code websites
+- 🌱 I’m currently learning as a Highschool student
+- 💞️ I’m looking to collaborate on Fun small and easy to learn projects!
+- 📫 How to reach me sakiuz23@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: im asian, live in the phillipines and go to school there also i like ken carson and a person named steph fr ong
+- 🤫 if your one of my classamates seeing this 🤫   <!-- i hope none of my classmates see this !--> 
